@@ -11,7 +11,7 @@ https://www.linkedin.com/in/love4684/
 
 lovekumar2017@iiitkottayam.ac.in
 
-Portfolio - [http://luvji.com/](https://lovekumar.org/)
+Portfolio - (https://lovekumar.org/)
 
 
 <!---
